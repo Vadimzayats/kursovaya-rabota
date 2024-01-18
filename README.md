@@ -15,3 +15,4 @@
 Как это должно быть оформлено (ГОСТ) <br>
  
 https://docs.google.com/presentation/d/1-mSNZhsMCnckn0tBG-aJS85K6BvRDu-wxRwwH3WyzCg/edit#slide=id.g253d2790068_1_0 
+https://docs.google.com/document/d/1-CKNOwUFQWkhY3i4Ei-0jKTPgLL4Sh-5pfK_WcMQrpk/edit?usp=sharing
